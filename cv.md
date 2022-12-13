@@ -2,7 +2,7 @@
 
 Q A ENGINEER![](Aspose.Words.f3c553ed-eb2f-4e86-a4cd-7ce7f018685c.002.png)
 
-+375298613299
+375298613299
 
 ecopralich@mail.ru 11,Karvata Str, Minsk,Belarus![](Aspose.Words.f3c553ed-eb2f-4e86-a4cd-7ce7f018685c.003.png)![](Aspose.Words.f3c553ed-eb2f-4e86-a4cd-7ce7f018685c.004.png)![](Aspose.Words.f3c553ed-eb2f-4e86-a4cd-7ce7f018685c.005.png)
 
