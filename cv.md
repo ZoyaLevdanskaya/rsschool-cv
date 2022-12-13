@@ -82,4 +82,4 @@ Language Additional Education
 
 Software Testing Introduction - EPAM Computer Science Basics - ЕPАМ Basics of software testing - QA Academy
 
-General  english  course  -  Belarusian  chamber  of commerce and industry
+General  english  course  -  Belarusian  chamber  of commerce and industry 
