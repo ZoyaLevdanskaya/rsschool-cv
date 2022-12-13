@@ -32,7 +32,7 @@ Interests:
 - Pre-preparation for the conclusion of the contract;
 - Organization  and  conduct  of  purchases  (invoices,  competitive  list, purchases from one source);
 - Post-contractual  work  (drawing  up  protocols   of  disagreements,
-
+-
 Experience additional agreements);
 
 - Preparation  of  documents  for  settlements  with  contractors  for products;
